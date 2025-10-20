@@ -10,5 +10,9 @@ can call me gia or sam aswell. All of my names are listed on my pronouns.cc page
 I love my friends and  family , im usually always with my family spending time together !!
 usually around friends or alone !! free c+h though ^_^
 
-
+Music im interested in / fav artists 
+Sabrina Carpenter , Ariana Grande , Girl in red , TV girl ,
+Sombr , Billie Eilish , Laufey , Victorious cast ,  monster high , 
+Lana Del Rey , Olivia Rodrigo , Marina , Chappel Roan , Kesha ,
+etc !!
 
