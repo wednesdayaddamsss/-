@@ -1,7 +1,6 @@
 # -
 about me !! 
 
-teenage girl .. !!
 
 
 im very interested in  ; the lion guard , any lionking movie + all animal disney movies , disney in general ,
