@@ -8,7 +8,7 @@ monster high , ever after high , sam & colby , duncanyounot , tara yummy + Jake 
 Im very short TwT , chill , and I dont get mad easily . I go by names such as my kintypes , but you
 can call me gia or sam aswell. All of my names are listed on my pronouns.cc page !! go check it out :3
 I love my friends and  family , im usually always with my family spending time together !!
-usually around friends or alone !! free c+h though ^_^
+usually around friends or alone in pt .. free c+h though ^_^
 
 Music im interested in / fav artists ;
 Sabrina Carpenter , Ariana Grande , Girl in red , TV girl ,
