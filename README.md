@@ -16,5 +16,6 @@ Sombr , Billie Eilish , Laufey , Victorious cast ,  monster high ,
 Lana Del Rey , Olivia Rodrigo , Marina , Chappel Roan , Kesha ,
 etc !!
 
-![max goof](https://github.com/user-attachments/assets/a54cd711-c1f9-4996-8e26-02570b795392)
+<img width="1080" height="1348" alt="image" src="https://github.com/user-attachments/assets/e0ea03f7-5fdf-4a00-ade0-60a1a53ff0a8" />
+
 
